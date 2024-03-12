@@ -2,3 +2,5 @@
 ✨ AI, Data & Cybersecurity Microcredentials
 ✨️ 15+ years experience in Business Development, Marcomm and Digital Project Management.
 ✨️  Connect with me on LinkedIn!
+[
+](https://brendaarmstrong.netlify.app/)https://brendaarmstrong.netlify.app/
